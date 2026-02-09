@@ -8,7 +8,7 @@ Thank you for visiting my profile.
 
 You can watch my self-introduction video using the link below:
 
-👉 **[Watch the Video](## 🎥 Self-Introduction Video
+ **[(## 🎥 Self-Introduction Video
 
 Thank you for visiting my profile.
 
